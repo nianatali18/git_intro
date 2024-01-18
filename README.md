@@ -1,4 +1,2 @@
 Nia Alvarado
-gutierni@oregonstate.edu
-Pink 
-Palace
+777
