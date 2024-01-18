@@ -1,3 +1,3 @@
-Nia Alvarado 
+Nia Alvarado
 gutierni@oregonstate.edu
 Pink
